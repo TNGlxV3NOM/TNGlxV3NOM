@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TNGlxV3NOM
+- 👀 I’m interested in soccer, video games and littl in science 
+- 🌱 I’m currently learning all about IT in a HTL 
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+E-mail: florothmueller@gmail.com 
